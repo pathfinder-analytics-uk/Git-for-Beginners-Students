@@ -14,4 +14,4 @@ It is FUN
 
 ## An interest outside of tech
 
-MTG / TCG / Chess / Movies / ... to many :)
+MTG / TCG / Chess / Movies / ... too many :)
